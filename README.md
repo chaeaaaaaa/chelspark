@@ -1,4 +1,4 @@
-### Hi there 👋🏻
+### Hi there! 👋🏻
 
 I'm <u>**Chelsea**</u>, a second-year uni student in Sydney, Australia.
 
